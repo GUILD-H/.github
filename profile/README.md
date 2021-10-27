@@ -1,4 +1,15 @@
-# GOOD MORNING IGBLON
+# Welcome to Virtuous Pedophiles
 
-![gif 1](https://media.discordapp.net/attachments/741348673199407115/779430655376752690/caption.gif)
-![gif 2](https://media.discordapp.net/attachments/741348673199407115/779431176602386455/caption.gif)
+*" I’m a 20-year-old man who has been trying to deal with an attraction to young girls since I was 13. Women just don't interest me. I wish with all my soul that I could have a brain that's wired normally. I know that I can never act on what I feel, but I need to speak to a therapist because I don't think I can get through this on my own. But if I talk to a therapist he could report me, because I have to talk about my attraction to young girls. I don’t know whether he would or not and don't even know how to go about getting more information. Even the friendships I have are in danger of falling apart because I can't just keep saying 'I'm fine' and I can't talk to anyone about my problem. I think about suicide a lot. "*
+
+Anonymous pleas like this show up constantly on the web. This man is a heartbreakingly anguished example of what we call a *Virtuous Pedophile*, virtuous because he is not going to do anything with a real child. We too are Virtuous Pedophiles, and there are a great many of us, though few people know of our existence. To admit our condition is to invite suspicion, hatred, and social ostracism. *Virtuous* doesn't mean we think we're better than the average person, just that we're not worse.
+
+We do not choose to be attracted to children, and we cannot make that attraction go away. But we can resist the temptation to abuse children sexually, and many of us present no danger to children whatsoever. Yet we are despised for having a sexual attraction that we did not choose, cannot change, and successfully resist.
+
+This hatred has its costs, both to children and to non-offending pedophiles themselves.  Many pedophiles don’t seek professional help because of the shame involved in admitting to therapists that they are sexually attracted to children.  Think how many cases of abuse would be avoided if pedophiles who were dedicated to resisting their attractions were treated with sympathy and respect, and were therefore more willing to seek professional help in order to remain law-abiding. And think of the cost to non-offending pedophiles themselves.  Many are depressed, and even suicidal, because of sexual thoughts that they didn’t choose but are able to successfully resist.
+
+Imagine for a moment that it was your child who was unfortunate enough to be attracted to children.  According to leading scientists, there is approximately a one percent chance of this happening no matter how good a parent you may be.  What would you want for your child?  Would you want him or her to be alone, full of self-hate, forced to bear this burden without help?  Or instead, would you want your child to be treated with sympathy and respect, to have access to help so he or she could live a happy, productive and law-abiding life?
+
+The goals of our organization are to reduce the stigma attached to pedophilia by letting people know that a substantial number of pedophiles do not molest children, and to provide peer support and information about available resources to help pedophiles lead happy, productive lives. Our highest priority is to help pedophiles never abuse children. We hope you will explore our web site with an open mind.
+
+**We operate a support group for pedophiles who are committed to avoiding having sexual contact with children. As of April 2021, more than 6,000 people have created accounts.  If you wish to join, \<contact us>**
